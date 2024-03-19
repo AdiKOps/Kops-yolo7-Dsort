@@ -1,1 +1,0 @@
-# Kops-yolo7-Dsort
